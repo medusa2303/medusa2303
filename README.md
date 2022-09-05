@@ -1,5 +1,4 @@
-ola sou jorge
-     eu sou eu, sei que nada sei. E não chora não
+ola sou jorge ,eu sou eu, sei que nada sei. E não chora não
 
 
 Here are some ideas to get you started:
