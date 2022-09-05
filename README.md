@@ -1,7 +1,6 @@
-### Hi there 👋
+ola sou jorge
+eu sou eu, sei que nada sei. E não chora não
 
-<!--
-**medusa2303/medusa2303** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
