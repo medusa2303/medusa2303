@@ -4,5 +4,5 @@
 - gosto de plantar ervas medicinais
 - to de alegria hoje
 - barbie cola velcro
-- trêS pontinhos vermelho
+- três pontinhos vermelho
 - bora correr no céu
